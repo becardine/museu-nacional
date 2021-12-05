@@ -7,4 +7,4 @@
 
 ###
 
-- [becardine](https://www.linkedin.com/in/becardine)
+- LinkedIn - [becardine](https://www.linkedin.com/in/becardine)
